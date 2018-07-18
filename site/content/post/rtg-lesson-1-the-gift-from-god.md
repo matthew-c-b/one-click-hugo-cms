@@ -1,5 +1,5 @@
 ---
-title: 'RTG: Lesson 1: The gift from God'
+title: 'RTG - Lesson 1: The gift from God'
 date: '2018-07-17T22:01:34-05:00'
 description: 'Ephesians 2:1–10'
 ---
