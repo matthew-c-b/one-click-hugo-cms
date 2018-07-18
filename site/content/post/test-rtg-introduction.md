@@ -1,5 +1,5 @@
 ---
-title: Test RTG - Introduction
+title: RTG - Introduction
 date: '2018-07-17T21:39:38-05:00'
 description: Test
 ---
