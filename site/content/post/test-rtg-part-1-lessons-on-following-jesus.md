@@ -27,5 +27,3 @@ When we are weak, reaching towards a goal is difficult. When we are tired and di
 
 God calls us to make a lifetime commitment. How do we keep going down the road when problems stand in our way? How does God’s gift of a new life in Jesus change us in practical ways? What are some principles to live by? This study answers these questions and more.
 
-|     |
-| --- |
