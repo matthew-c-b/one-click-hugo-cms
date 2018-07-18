@@ -21,7 +21,7 @@ He seemed to be doing everything that God wanted him to do. Paul questioned why 
 
 So Paul prayed that God would remove his painful problem. He begged God three times to remove it. [[(Look up 2 Corinthians 12:9 to find God’s answer.)]]{{And God answered, “My grace is all you need. Only when you are weak can everything be done completely by my power” (2 Corinthians 12:9).}}
 
-Paul’s painful problem humbled him. It taught him that he should not think he was better than anyone else. And it taught him to rely only on God. \[[Paul said he was even glad for weaknesses if they brought him closer to Christ (2 Corinthians 12:10).]]{{Paul said, “Yes, I am glad to have weaknesses if they are for Christ” (2 Corinthians 12:10).}} When Paul was weak he had to rely on God, and God always helped him.
+Paul’s painful problem humbled him. It taught him that he should not think he was better than anyone else. And it taught him to rely only on God. [[Paul said he was even glad for weaknesses if they brought him closer to Christ (2 Corinthians 12:10).]]{{Paul said, “Yes, I am glad to have weaknesses if they are for Christ” (2 Corinthians 12:10).}} When Paul was weak he had to rely on God, and God always helped him.
 
 When we are weak, reaching towards a goal is difficult. When we are tired and discouraged, this can keep us from reaching the goal. God promises to give us his grace when we follow Jesus Christ, especially when we are weak or suffer.
 
