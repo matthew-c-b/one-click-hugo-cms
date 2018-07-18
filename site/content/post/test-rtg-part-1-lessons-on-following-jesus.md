@@ -1,5 +1,5 @@
 ---
-title: 'Test RTG - Part 1: Lessons on following Jesus'
+title: 'RTG - Part 1: Lessons on following Jesus'
 date: '2018-07-17T21:54:00-05:00'
 description: Test
 ---
