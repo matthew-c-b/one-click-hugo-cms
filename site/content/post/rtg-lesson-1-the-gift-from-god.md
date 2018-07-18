@@ -7,19 +7,15 @@ description: 'Ephesians 2:1–10'
 
 We all like to receive gifts. What has been your favourite present that you received, or what gift would you like to receive?
 
-### Bible Study
+## Bible Study
 
-\rem --------------------------
+### About Ephesians
 
-\periph1 SCR-INT
+Paul (also called Saul) was a Jewish leader who had been persecuting followers of Jesus Christ. But one day Jesus himself, now raised from death, suddenly appeared to him! (Read the beginning of Paul’s story in Acts 9.) After Paul accepted Jesus as the Son of God and Lord of all people, he travelled around the Mediterranean world telling people about Jesus. Because of his teaching, new believers gathered to form many new churches.
 
-\mrah About Ephesians
+As their spiritual guide, Paul wrote letters to teach and encourage these new churches. People who disagreed with Paul fought against his efforts to tell the world about Jesus. These enemies caused him a lot of trouble and suffering. In fact, Paul was in jail when he wrote this letter to the church at Ephesus. Probably other churches in that region also read the letter.
 
-\p Paul (also called Saul) was a Jewish leader who had been persecuting followers of Jesus Christ. But one day Jesus himself, now raised from death, suddenly appeared to him! (Read the beginning of Paul’s story in Acts 9.) After Paul accepted Jesus as the Son of God and Lord of all people, he travelled around the Mediterranean world telling people about Jesus. Because of his teaching, new believers gathered to form many new churches.
-
-\p As their spiritual guide, Paul wrote letters to teach and encourage these new churches. People who disagreed with Paul fought against his efforts to tell the world about Jesus. These enemies caused him a lot of trouble and suffering. In fact, Paul was in jail when he wrote this letter to the church at Ephesus. Probably other churches in that region also read the letter.
-
-\p In this letter, Paul teaches that the Good News of God’s grace through faith in Jesus Christ is for everyone. It is both for Jews and for people who are not Jews (Gentiles). Paul applauds the non-Jewish followers of Jesus for their new life as members of God’s holy people. Whether Jew or Gentile, they are united in Jesus Christ. And their unity shows to the spiritual forces of darkness the wisdom of God’s plan. So Paul explains the way they live now should be different because they have a new life together in Christ. In this lesson, we will learn that this new life is God’s gift to everyone who believes in Jesus.
+In this letter, Paul teaches that the Good News of God’s grace through faith in Jesus Christ is for everyone. It is both for Jews and for people who are not Jews (Gentiles). Paul applauds the non-Jewish followers of Jesus for their new life as members of God’s holy people. Whether Jew or Gentile, they are united in Jesus Christ. And their unity shows to the spiritual forces of darkness the wisdom of God’s plan. So Paul explains the way they live now should be different because they have a new life together in Christ. In this lesson, we will learn that this new life is God’s gift to everyone who believes in Jesus.
 
 > {{Ephesians 2:1–10}}
 >
