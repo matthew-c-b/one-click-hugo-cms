@@ -1,5 +1,5 @@
 ---
-title: Test RTG - How to use Reaching Towards the Goal
+title: RTG - How to use Reaching Towards the Goal
 date: '2018-07-17T21:45:03-05:00'
 description: Test
 ---
